@@ -1,5 +1,4 @@
 # Yassinelmqilqane
-# 🏄‍♂️ Yassine Imqilqane
 
 **`Digital Craftsman (Developer/Filmmaker/Creator)`**
 
